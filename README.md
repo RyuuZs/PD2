@@ -1,3 +1,2 @@
 # Perbaruan?
-Background Di Bagusin
-media sosial
+Background Di Bagusin Dan Tambahan Media Sosial
